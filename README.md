@@ -1,0 +1,1 @@
+# hide-sponsored-weav3r
